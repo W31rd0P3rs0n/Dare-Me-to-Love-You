@@ -1,2 +1,2 @@
 # Obsidion-Lovers
-An enemies to lovers book following the journey of two guys from childhood to adulthood. Imcluding fantasy, dragons, and queer representation! There are people of all religions as well.
+In a world of mortals and dragons, there is chaos between people. Some believe that the type of dragon they have tamed make them better, but is true? Is the power that comes from a fire dragon stronger than that of a water dragon? Or does it have no effect on how someone is? Will the two boys at each others throats kill each other or become friends? Let's find out through the journey of everyone! The two may fight or kill. Will they?
